@@ -22,5 +22,4 @@ https://docs.google.com/document/d/1UDmPJdvRhYWYVBNQTzIU6LqcSQLeHwW-/edit?usp=sh
 
 ## Feedback
 
-If you have any feedback, please reach out to us at kumar.sawant37@gmail.com
-
+If you have any feedback, please reach out to us at ankit44604@gmail.com
